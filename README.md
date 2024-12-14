@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Jesus2076 
+- 👋 Hi, I’m Jesus2076 a Spanish 49 year-old entrepeneur
 - 👀 I’m interested in ... change the whole industry of adult creators content
 - 🌱 I’m currently learning ... Marketing and Sales
 - 💞️ I’m looking to collaborate on building a proffesional team of software developers 
