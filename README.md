@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Jesus2076 a Spanish 49 year-old entrepeneur
-- 👀 I’m interested in ... change the whole industry of adult creators content
-- 🌱 I’m currently learning ... Marketing and Sales
+- 👀 I’m interested in ... developing powerfull online ideas
+- 🌱 I’m currently learning ... Nocode Tools, Marketing and Sales
 - 💞️ I’m looking to collaborate on building a proffesional team of software developers 
 - 📫 How to reach me ... +34 667548990  jesiaz75@gmail.com
 - 😄 Pronouns: ...
